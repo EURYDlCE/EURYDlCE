@@ -1,3 +1,5 @@
-![Tumblr_l_13899069087508](https://github.com/user-attachments/assets/5d0e07b2-90c7-49bb-9cdb-a6152bda3e14)
+![lv_0_20250130233519_1](https://github.com/user-attachments/assets/b11e972b-9059-4629-bbd7-29157c6df5f6)
+
+
 
 https://eurydlce.straw.page !!
