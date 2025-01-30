@@ -1,3 +1,7 @@
-![Tumblr_l_180045962001471](https://github.com/user-attachments/assets/67e46565-c1aa-4447-8ae1-59b9ee77b7e9)
+
+
+https://github.com/user-attachments/assets/34e549f1-4ece-4a32-9a98-df894e7d8b00
+
+
 
 https://eurydlce.straw.page !!
